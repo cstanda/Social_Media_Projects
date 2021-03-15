@@ -10,6 +10,10 @@ Google My Business: https://maps.app.goo.gl/qEiFwVxGz2QEw1MeA
 Mega Sale Investment
 Facebook: https://www.facebook.com/MegaSaleInvestment 
 
+Trendy Point 
+Facebook: https://www.facebook.com/Trendy-Point-107175144384599
+
+
 
 
 
