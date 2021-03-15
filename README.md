@@ -1,6 +1,6 @@
 # Social Media Projects
 
-The following are some of the social media projects for different businesses I have helped to setup: 
+The following are some of the social media projects for different businesses I have helped to setup and grow audience:
 
 Pewa Gauge Wines and Spirits </br>
 Facebook: https://www.facebook.com/PewaGauge </br>
