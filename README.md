@@ -13,6 +13,9 @@ Facebook: https://www.facebook.com/MegaSaleInvestment </br>
 Trendy Point </br>
 Facebook: https://www.facebook.com/Trendy-Point-107175144384599 </br>
 
+Eldoret Forex Traders Community </br>
+Facebook: https://www.facebook.com/groups/eldoretforexcommunity </br> 
+
 
 
 
