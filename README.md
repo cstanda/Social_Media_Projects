@@ -17,7 +17,7 @@ Piga Pamba Fashions </br>
 Facebook: https://www.facebook.com/pigapamba </br>
 Instagram: https://www.instagram.com/pigapamba </br>
 Twitter: https://twitter.com/PigaPamba </br>
-Google: https://www.google.com/PigaPamba </br>
+Google: https://www.google.com/search?q=Piga+Pamba+Fashions </br>
 
 
 
