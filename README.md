@@ -10,11 +10,14 @@ Google My Business: https://maps.app.goo.gl/qEiFwVxGz2QEw1MeA </br>
 Mega Sale Investment </br>
 Facebook: https://www.facebook.com/MegaSaleInvestment </br>
 
-Trendy Point </br>
-Facebook: https://www.facebook.com/Trendy-Point-107175144384599 </br>
-
 Eldoret Forex Traders Community </br>
 Facebook: https://www.facebook.com/groups/eldoretforexcommunity </br> 
+
+Piga Pamba Fashions </br>
+Facebook: https://www.facebook.com/pigapamba </br>
+Instagram: https://www.instagram.com/pigapamba </br>
+Twitter: https://twitter.com/PigaPamba </br>
+Google: https://www.google.com/PigaPamba </br>
 
 
 
