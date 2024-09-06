@@ -17,6 +17,7 @@ LinkedIn: https://www.linkedin.com/company/across-equator-aviators/about </br>
 Facebook: https://www.facebook.com/groups/aviationstem </br>
 Instagram: https://www.instagram.com/acrossequatoraviators </br>
 X: https://x.com/AcrossEquatorA </br>
+Telegram: https://t.me/acrossequatoraviators </br>
 Website www.acrossequatoraviators.org </br>
 
 Mega Sale Investment </br>
