@@ -13,11 +13,11 @@ Eldoret Forex Traders Community </br>
 Facebook: https://www.facebook.com/groups/eldoretforexcommunity </br>
 
 Across Equator Aviators
-Website www.acrossequatoraviators.org
-LinkedIn: https://www.linkedin.com/company/across-equator-aviators/about
-Facebook: https://www.facebook.com/groups/aviationstem
-Instagram: https://www.instagram.com/acrossequatoraviators
-X: https://x.com/AcrossEquatorA 
+Website www.acrossequatoraviators.org </br>
+LinkedIn: https://www.linkedin.com/company/across-equator-aviators/about </br>
+Facebook: https://www.facebook.com/groups/aviationstem </br>
+Instagram: https://www.instagram.com/acrossequatoraviators </br>
+X: https://x.com/AcrossEquatorA </br>
 
 Mega Sale Investment </br>
 Facebook: https://www.facebook.com/MegaSaleInvestment </br>
