@@ -12,12 +12,12 @@ Telegram: https://t.me/PigaPamba </br>
 Eldoret Forex Traders Community </br>
 Facebook: https://www.facebook.com/groups/eldoretforexcommunity </br>
 
-Across Equator Aviators
-Website www.acrossequatoraviators.org </br>
+Across Equator Aviators  </br>
 LinkedIn: https://www.linkedin.com/company/across-equator-aviators/about </br>
 Facebook: https://www.facebook.com/groups/aviationstem </br>
 Instagram: https://www.instagram.com/acrossequatoraviators </br>
 X: https://x.com/AcrossEquatorA </br>
+Website www.acrossequatoraviators.org </br>
 
 Mega Sale Investment </br>
 Facebook: https://www.facebook.com/MegaSaleInvestment </br>
