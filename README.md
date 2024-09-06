@@ -9,16 +9,25 @@ Twitter: https://twitter.com/PigaPamba </br>
 Google: https://www.google.com/search?q=Piga+Pamba+Fashions </br>
 Telegram: https://t.me/PigaPamba </br>
 
-Mega Sale Investment </br>
-Facebook: https://www.facebook.com/MegaSaleInvestment </br>
-
 Eldoret Forex Traders Community </br>
 Facebook: https://www.facebook.com/groups/eldoretforexcommunity </br>
+
+Across Equator Aviators
+Website www.acrossequatoraviators.org
+LinkedIn: https://www.linkedin.com/company/across-equator-aviators/about
+Facebook: https://www.facebook.com/groups/aviationstem
+Instagram: https://www.instagram.com/acrossequatoraviators
+X: https://x.com/AcrossEquatorA 
+
+Mega Sale Investment </br>
+Facebook: https://www.facebook.com/MegaSaleInvestment </br>
 
 Pewa Gauge Wines and Spirits </br>
 Facebook: https://www.facebook.com/PewaGauge </br>
 Instagram: https://www.instagram.com/pewagauge </br>
 Google My Business: https://maps.app.goo.gl/qEiFwVxGz2QEw1MeA </br>
+
+
 
 
 
