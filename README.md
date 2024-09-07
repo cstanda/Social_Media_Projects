@@ -1,7 +1,5 @@
 # Social Media Projects
 
-The following are some of the social media projects I have worked on:
-
 Piga Pamba Fashions </br>
 Facebook: https://www.facebook.com/pigapamba </br>
 Instagram: https://www.instagram.com/pigapamba </br>
